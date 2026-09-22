@@ -1,1 +1,2 @@
-https://64.media.tumblr.com/c3331e6c64c214103a3dec902e738880/5eb97c7f78f7092d-57/s1280x1920/6069a2a446c5d3e08ba3405906c05ffc24818247.gifv
+<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/082b8d73-0533-4a55-9545-230ab2044beb" />
+
