@@ -1,1 +1,3 @@
-https://64.media.tumblr.com/a106594713bd88a1bf4f5d23afd569a9/8d2534cef05b28e1-ee/s1280x1920/8950498da9171b5103ac1ca1085b73360035261e.gif
+
+<img width="1144" height="713" alt="romeos heart" src="https://github.com/user-attachments/assets/1a0422c1-cda7-4c03-8f04-2805980ca0b0" />
+
